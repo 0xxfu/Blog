@@ -1,3 +1,3 @@
-# things & think 
+# things&think 
 
 世界 -> 宇宙 -> 价值 -> 人生 -> 幸福、责任、兴趣
